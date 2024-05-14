@@ -2,7 +2,7 @@
 - 👀 I’m interested in gay tops
 - 🌱 I’m currently learning douching
 - 💞️ I’m looking to collaborate on gay onlyfans
-- 📫 How to reach me from behind
+- 📫 How to reach me: from behind
 - 😄 Pronouns: хуй
 - ⚡ Fun fact: i like gooning 
 
