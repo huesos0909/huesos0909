@@ -6,6 +6,9 @@
 - 😄 Pronouns: хуй
 - ⚡ Fun fact: i like gooning 
 
+
+
+wanna be gay? let's hang.
 <!---
 huesos0909/huesos0909 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
